@@ -1,2 +1,2 @@
 # Calendario
-Joel, Luiz humebrto, Henrique Gomes e Lauane
+Joel, Luiz humebrto, Henrique Gomes e Lauane Gomes
